@@ -1,2 +1,2 @@
 # Diandiandidi
-回忆的
+只管写就好了。
