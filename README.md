@@ -1,6 +1,6 @@
-This is a journal about every places that should be my hometown.
+This is a journal about every places that should be my hometown, updated when I leave.
 
-But I belong to none of them.
+Though I belong to none of them.
 
 
 
